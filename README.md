@@ -5,5 +5,4 @@
 - 👯 I’m looking to collaborate on **projects which can drive fast and efficient impact on business developing**
 - 🤔 I’m looking for help with **opportunites that are data-analytics related**
 - 💬 Ask me about  **anything ML & AI related**
-- 📫 How to reach me: https://www.linkedin.com/in/shelleyshuyi/
 - ⚡ Fun fact: Profile picture is my cat named **Meow** and liked to be tucked as a burrito
